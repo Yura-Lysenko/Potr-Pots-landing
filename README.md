@@ -1,1 +1,1 @@
-[DEMO LINK](https:/Yura-Lysenko.github.io/Potr-Pots-landing/)
+[DEMO LINK](https://yura-lysenko.github.io/Potr-Pots-landing/)
